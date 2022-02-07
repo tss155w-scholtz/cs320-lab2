@@ -1,4 +1,4 @@
-# cs320-lab2
+My CS account
 # cs320-lab2
 # cs320-lab2
 # cs320-lab2
